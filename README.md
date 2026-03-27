@@ -2,4 +2,5 @@
 
 SEJA BEM VINDO
 
-a piot loja do brasil
+a melhor loja do brasil!!!
+tenis das melhores qualidades e de todos os estilos
